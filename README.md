@@ -15,4 +15,4 @@
 ### Liên hệ:
 
 📧 Email: anhntse173572@fpt.edu.vn
-🌐 LinkedIn: 
+🌐 LinkedIn: https://www.linkedin.com/public-profile/settings?trk=d_flagship3_profile_self_view_public_profile
