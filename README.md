@@ -15,4 +15,4 @@
 ### Liên hệ:
 
 📧 Email: anhntse173572@fpt.edu.vn
-🌐 LinkedIn: www.linkedin.com/in/Nguyen-The-Anh-4b27a5282?trk=d_flagship3_profile_self_view_public_profile
+🌐 LinkedIn: www.linkedin.com/in/Nguyen-The-Anh-4b27a5282
